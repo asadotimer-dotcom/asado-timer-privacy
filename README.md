@@ -59,6 +59,11 @@ Cambios a esta Política de Privacidad
 Podemos actualizar Nuestra Política de Privacidad de vez en cuando. Le notificaremos de cualquier cambio publicando la nueva Política de Privacidad en esta página.
 Le haremos saber vía correo electrónico y/o un aviso prominente en Nuestro Servicio, antes de que el cambio entre en vigor y actualizaremos la fecha "Última actualización" en la parte superior de esta Política de Privacidad.
 Se le aconseja revisar esta Política de Privacidad periódicamente para cualquier cambio. Los cambios a esta Política de Privacidad son efectivos cuando se publican en esta página.
+
+
 Contáctenos
 Si tiene alguna pregunta sobre esta Política de Privacidad, puede contactarnos:
 Por correo electrónico: asadotimer@gmail.com
+
+
+Generado para Asado Timer por GUISOTECH CORP © 2025.
